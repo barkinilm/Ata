@@ -1,0 +1,2 @@
+# Ata
+Kurtuluş Savaşı
